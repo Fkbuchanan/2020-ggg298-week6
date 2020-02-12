@@ -6,3 +6,5 @@ and tardigrades in your hot water tank
 
 you may as well grow claws and sleep in
 
+but do your goddamned homework
+
